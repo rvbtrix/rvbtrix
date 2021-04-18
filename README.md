@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Reginaldo Botelho
+- 👀 I’m interested in everything about tecnology
